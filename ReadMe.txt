@@ -1,0 +1,2 @@
+J'ai voulue faire ce tools très simples car j'ai vue un tiktok qui disait : Avec lequel de ses solution je vais être le plus riches sois : 1 million d'euros maintenant ou 2 centimes qui sont multiplier par deux chaque jours.
+Et chaque jours le résultat et multiplier par deux . 
